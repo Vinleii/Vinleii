@@ -34,19 +34,19 @@ __FANDOMS!!__
 
 #
 
-__DNI IF...__
+__DNI LIST__
 
-> Now, I know that NOT ALL fans of a specific fandom are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int!
+> Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's World are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int! But these people on the list must stay 10 solar systems away from me.
 
-1. HH/HB fans : ESPECIALLY those Valentino cosplayers.
+1. Spawnists : How are yall jumping off bridges for a game ICON??
 
-2. Forsaken fans : I used to play this game, but the fandom got extremely toxic. A few of them are really cool people, though.
+2. Homophobes : I'm saying this as a straight person, but did the gays kill your grandma?
 
-3. Italian Brainrot : Please. NO. NONONO.
+4. Italian Brainrot : Please. NO. NONONO.
 
-4. AI "Artists: : Self explanatory lmao
+5. AI "Artists: : Self explanatory lmao
 
-> Orrrrrr generally toxic people...
+> And generally toxic people should stay away too.
 
 #
 
