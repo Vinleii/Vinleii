@@ -50,7 +50,8 @@ __DNI LIST__
 
 #
 
-_I'm too lazy to write the rest, so check out my strawpage instead!
+_I'm too lazy to write the rest, so check out my strawpage instead!_
+
 
 ![bat-dispatch-sonar](https://github.com/user-attachments/assets/a0a3433c-f7b7-4342-b9c0-a9e1e4d6ded7)
 
