@@ -1,9 +1,10 @@
 
-![𝕱𝕺𝕽 𝕭𝕺𝖄𝕾, ʜᴇᴀᴅᴄᴀɴɴᴏɴs](https://github.com/user-attachments/assets/a1040021-501f-4898-959e-9df021585a4d)
+![Blue](https://github.com/user-attachments/assets/1f41a272-6435-4b42-9b13-042513f7eb20)
+
 
 __Salutations!__
 
-> _You've probably clicked my profile from ponytown, so I'm guessing you want to know more about me._
+> _You've probably clicked my profile from ponytown, so I'm guessing you want to know more about me!_
 
 #
 
@@ -17,7 +18,8 @@ __Salutations!__
 
 > Location — Philippines
 
-![download](https://github.com/user-attachments/assets/78806445-684c-46d0-bb4c-8cfc940d2646)
+![download (1)](https://github.com/user-attachments/assets/8d455b8b-b327-474e-a575-646d2435b4e2) 
+
 
 #
 
@@ -43,7 +45,8 @@ __Salutations!__
 
 (There are a lot, LOT more fandoms I'm im but some of them are pretty dead)
 
-![download (1)](https://github.com/user-attachments/assets/540ad25f-b35c-4c22-b2dd-35779c37fc44)
+![download (2)](https://github.com/user-attachments/assets/16e37e95-05bc-463c-849c-11a1af31984d)
+
 
 
 #
@@ -60,11 +63,32 @@ _Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's
 
 > AI "Artists: : Self explanatory lmao
 
-_And generally toxic people should stay away too._
+> Chronically Online people : Guys!!! I'm typing '.' everytime someone breathes!!! Wait... why isn't anyone laughing?
+
+
+_And generally toxic people should stay away too_
+
+![Maleficent (2019)](https://github.com/user-attachments/assets/567c2565-9657-4bef-8422-b08860a0fcce)
+
+
+#
+
+`LOADING : Etc... `
+
+> So... I may or may not be incredibly horrible at socializing online, but I'll int back if you decide to int with me!
+
+> Due to my amazing internet connection, I might disconnect from time to time.
+
+> If the party/rp shifts to something not sfw, I'll most definetely leave. It's called a SAFE server for a reason bru
+
+![now winter comes slowly](https://github.com/user-attachments/assets/4ea9af78-805b-448a-abaa-41b652bab843)
+
 
 #
 
 __Anyways thats it buh bye__
+
+SIGN ATA N STRAWPAGE PLEASE SPPED I NEED THISSSSS
 
 ![feed them freddy !! 💔💔](https://github.com/user-attachments/assets/2daab66c-6435-47ff-bdb0-966aeb57a79c)
 
