@@ -23,7 +23,7 @@ __Salutations!__
 
 #
 
-`LOADING : User's Fandoms...`
+`LOADING : User's Fandoms/Interests...`
 
 - **Dispatch.**
 > "Fym temporarily blinded? Oh, you blind foreva!"
@@ -52,6 +52,10 @@ __Salutations!__
 - **AQOTWF.**
 >  "I see how peoples are set against one another, and in silence, unknowingly, foolishly, obediently, innocently slay one another."
 
+- **Pressure**
+>  "You're in a hell of your own making... And you're NEVER GETTING OUT!"
+
+
 (There are a lot, LOT more fandoms I'm im but some of them are pretty dead)
 
 ![download (2)](https://github.com/user-attachments/assets/16e37e95-05bc-463c-849c-11a1af31984d)
@@ -66,11 +70,11 @@ _Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's
 
 > Spawnists : How are yall jumping off bridges for a game ICON??
 
-> Homophobes : I'm saying this as a straight person, but did the gays kill your grandma?
+> Homophobes : Did the gays kill your grandma?
 
 > Italian Brainrot : Please. NO. NONONO.
 
-> AI "Artists: : Self explanatory lmao
+> AI "Artists: : Self explanatory
 
 > Chronically Online people : Guys!!! I'm typing '.' everytime someone breathes!!! Wait... why isn't anyone laughing?
 
@@ -84,7 +88,7 @@ _And generally toxic people should stay away too_
 
 `LOADING : Etc... `
 
-> So... I may or may not be incredibly horrible at socializing online, but I'll int back if you decide to int with me!
+> I may or may not be incredibly horrible at socializing online, but I'll int back if you decide to int with me!
 
 > Due to my amazing internet connection, I might disconnect from time to time.
 
@@ -97,7 +101,6 @@ _And generally toxic people should stay away too_
 
 __Anyways thats it buh bye__
 
-SIGN ATA N STRAWPAGE PLEASE SPPED I NEED THISSSSS
 
 ![feed them freddy !! 💔💔](https://github.com/user-attachments/assets/2daab66c-6435-47ff-bdb0-966aeb57a79c)
 
