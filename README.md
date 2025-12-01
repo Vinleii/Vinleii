@@ -25,23 +25,32 @@ __Salutations!__
 
 `LOADING : User's Fandoms...`
 
-> **Dispatch.** "Fym temporarily blinded? Oh, you blind foreva!"
+- **Dispatch.**
+> "Fym temporarily blinded? Oh, you blind foreva!"
 
-> **Slasher Movies.** "Look what they did to you, Jason. Make them remember."
+- **Slasher Movies.**
+>  "Look what they did to you, Jason. Make them remember."
 
-> **Heathers: The Musical.** "We'll watch the smoke pour out the doors- bring marshmallows, we'll make smores!"
+- **Heathers: The Musical.**
+>  "We'll watch the smoke pour out the doors- bring marshmallows, we'll make smores!"
 
-> **Epic the Musical.** "Oh, ruthlessness is MERCY upon ourselves!"
+- **Epic the Musical.**
+>  "You are the worst kind of good 'cause you're not even great!"
 
-> **Lackadaisy.** "Viktor. Takes. Your. Bishop."
+- **Lackadaisy.**
+>  "Viktor. Takes. Your. Bishop."
 
-> **Ena.** "TURRRROOONNNNN!"
+- **Ena.**
+>  "TURRRROOONNNNN!"
 
-> **CRK.** "Only silence remains."
+- **CRK.**
+>  "Both heart and soul are easily betrayed in the face of great power."
 
-> **TF2.** "And zhat's how I lost my medical license!"
+- **TF2.**
+>  "If God would've wanted you to live, then He wouldn't have created me!"
 
-> **AQOTWF.** "I see how peoples are set against one another, and in silence, unknowingly, foolishly, obediently, innocently slay one another."
+- **AQOTWF.**
+>  "I see how peoples are set against one another, and in silence, unknowingly, foolishly, obediently, innocently slay one another."
 
 (There are a lot, LOT more fandoms I'm im but some of them are pretty dead)
 
