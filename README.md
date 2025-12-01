@@ -1,57 +1,74 @@
-![sonar-dispatch-game](https://github.com/user-attachments/assets/f56cf525-a2f4-418c-aebf-303f9b296bd9)
+
+![𝕱𝕺𝕽 𝕭𝕺𝖄𝕾, ʜᴇᴀᴅᴄᴀɴɴᴏɴs](https://github.com/user-attachments/assets/a1040021-501f-4898-959e-9df021585a4d)
 
 __Salutations!__
 
-I'm Vinlei, but I simply go by Vin for short.
-
-> _You've probably clicked my profile from ponytown, so here's a few things about me:_
+> _You've probably clicked my profile from ponytown, so I'm guessing you want to know more about me._
 
 #
-__FANDOMS!!__
 
+`LOADING : User's Basic Info...`
 
-1. Dispatch
+> Name — Vinlei
 
-2. Friday the 13th
+> Pronouns — she / her , character's pronouns
 
-3. Heathers: The Musical
+> Age — 16
 
-4. Epic the Musical
+> Location — Philippines
 
-5. Lackadaisy
+![download](https://github.com/user-attachments/assets/78806445-684c-46d0-bb4c-8cfc940d2646)
 
-6. Ena
+#
 
-7. TADC
+`LOADING : User's Fandoms...`
 
-8. CRK
+> **Dispatch.** "Fym temporarily blinded? Oh, you blind foreva!"
 
-9. TF2
+> **Slasher Movies.** "Look what they did to you, Jason. Make them remember."
 
-10. Let Him Go
+> **Heathers: The Musical.** "We'll watch the smoke pour out the doors- bring marshmallows, we'll make smores!"
+
+> **Epic the Musical.** "Oh, ruthlessness is MERCY upon ourselves!"
+
+> **Lackadaisy.** "Viktor. Takes. Your. Bishop."
+
+> **Ena.** "TURRRROOONNNNN!"
+
+> **CRK.** "Only silence remains."
+
+> **TF2.** "And zhat's how I lost my medical license!"
+
+> **AQOTWF.** "I see how peoples are set against one another, and in silence, unknowingly, foolishly, obediently, innocently slay one another."
 
 (There are a lot, LOT more fandoms I'm im but some of them are pretty dead)
 
-#
+![download (1)](https://github.com/user-attachments/assets/540ad25f-b35c-4c22-b2dd-35779c37fc44)
 
-__DNI LIST__
-
-> Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's World are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int! But these people on the list must stay 10 solar systems away from me.
-
-1. Spawnists : How are yall jumping off bridges for a game ICON??
-
-2. Homophobes : I'm saying this as a straight person, but did the gays kill your grandma?
-
-4. Italian Brainrot : Please. NO. NONONO.
-
-5. AI "Artists: : Self explanatory lmao
-
-> And generally toxic people should stay away too.
 
 #
 
-_I'm too lazy to write the rest, so check out my strawpage instead!_
+`LOADING : User's DNI List...`
+
+_Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's World are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int! But these people on the list must stay 10 solar systems away from me._
+
+> Spawnists : How are yall jumping off bridges for a game ICON??
+
+> Homophobes : I'm saying this as a straight person, but did the gays kill your grandma?
+
+> Italian Brainrot : Please. NO. NONONO.
+
+> AI "Artists: : Self explanatory lmao
+
+_And generally toxic people should stay away too._
+
+#
+
+__Anyways thats it buh bye__
+
+![feed them freddy !! 💔💔](https://github.com/user-attachments/assets/2daab66c-6435-47ff-bdb0-966aeb57a79c)
 
 
-![bat-dispatch-sonar](https://github.com/user-attachments/assets/a0a3433c-f7b7-4342-b9c0-a9e1e4d6ded7)
+
+
 
