@@ -66,20 +66,20 @@ __Salutations!__
 
 `LOADING : User's DNI List...`
 
-_Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's World are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int! But these people on the list must stay 10 solar systems away from me._
+_Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's World are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int! But these people on the list must stay about 10 solar systems away from me._
 
-> Spawnists : How are yall jumping off bridges for a game ICON??
+> Spawnists
 
-> Homophobes : Did the gays kill your grandma?
+> Homophobes
 
-> Italian Brainrot : Please. NO. NONONO.
+> Italian Brainrot kids
 
-> AI "Artists: : Self explanatory
+> AI "Artists"
 
-> Chronically Online people : Guys!!! I'm typing '.' everytime someone breathes!!! Wait... why isn't anyone laughing?
+> Chronically Online people
 
 
-_And generally toxic people should stay away too_
+_And generally toxic people should stay away too <3_
 
 ![Maleficent (2019)](https://github.com/user-attachments/assets/567c2565-9657-4bef-8422-b08860a0fcce)
 
@@ -92,7 +92,6 @@ _And generally toxic people should stay away too_
 
 > Due to my amazing internet connection, I might disconnect from time to time.
 
-> If the party/rp shifts to something not sfw, I'll most definetely leave. It's called a SAFE server for a reason bru
 
 ![now winter comes slowly](https://github.com/user-attachments/assets/4ea9af78-805b-448a-abaa-41b652bab843)
 
