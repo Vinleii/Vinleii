@@ -1,10 +1,15 @@
 
-![Blue](https://github.com/user-attachments/assets/1f41a272-6435-4b42-9b13-042513f7eb20)
+  <p align="center">
+<img src="https://github.com/user-attachments/assets/1f41a272-6435-4b42-9b13-042513f7eb20" width="400" height="400" border="10"/>
+  </p>
 
+<p align="center">
+Salutations!
+</p>
 
-__Salutations!__
-
-> _You've probably clicked my profile from ponytown, so I'm guessing you want to know more about me!_
+<p align="center">
+<sup>You've probably clicked my profile from ponytown, so I'm guessing you want to know more about me!</sup>
+</p>
 
 #
 
@@ -56,7 +61,7 @@ __Salutations!__
 >  "You're in a hell of your own making... And you're NEVER GETTING OUT!"
 
 
-_(There are a lot, LOT more fandoms I'm im but some of them are pretty dead)_
+<sup>(There are a lot, LOT more fandoms I'm im but some of them are pretty dead)</sup>
 
 ![download (2)](https://github.com/user-attachments/assets/16e37e95-05bc-463c-849c-11a1af31984d)
 
@@ -102,7 +107,7 @@ __Anyways thats it buh bye__
 
 
 ![feed them freddy !! 💔💔](https://github.com/user-attachments/assets/2daab66c-6435-47ff-bdb0-966aeb57a79c)
-
+</p>
 
 
 
