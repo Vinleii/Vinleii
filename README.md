@@ -123,6 +123,8 @@ _And generally toxic people should stay away too <3_
 
 > If I don't reply to your whisps, that means I'm AFK. (Or maybe because you said something weird/innapropriate)
 
+_Also, for new players, feel free to ask me stuff about the game! Most people out there are just rlly rude to newbies so I don't mind helping :)_
+
  <p align="center">
 <img src="https://github.com/user-attachments/assets/4ea9af78-805b-448a-abaa-41b652bab843" width="400" height="400" border="10"/>
  </p>
