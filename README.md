@@ -43,10 +43,10 @@ Salutations!
 - **Ena / Dream BBQ.**
 >  <sup>"TURRRROOONNNNN!"</sup>
 
-- **CRK.**
+- **Cookie Run Kingdom.**
 >  <sup>"Both heart and soul are easily betrayed in the face of great power."</sup>
 
-- **TF2.**
+- **Team Fortress 2.**
 >  <sup>"If God would've wanted you to live, then He wouldn't have created me!"</sup>
 
 - **Pressure**
@@ -60,7 +60,7 @@ Salutations!
 - **Friday the 13th / Slasher movies in general.**
 >  <sup>"Look what they did to you, Jason. Make them remember."</sup>
 
-- **AQOTWF.**
+- **All Quiet on the Western Front.**
 >  <sup>"I see how peoples are set against one another, and in silence, unknowingly, foolishly, obediently, innocently slay one another."</sup>
 
 - **Lackadaisy.**
@@ -100,7 +100,7 @@ _Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's
 
 > Chronically online people.
 
-> Creeps.
+> Creeps / Proshippers.
 
 > People above 18.
 
@@ -118,6 +118,8 @@ _And generally toxic people should stay away too <3_
 > I may or may not be incredibly horrible at socializing online, but I'll int back if you decide to int with me!
 
 > Due to my amazing internet connection, I might disconnect from time to time.
+
+> I'm always on a tight schedule, so I might leave in the most random moments.
 
 > If I don't reply to your whisps, that means I'm AFK. (Or maybe because you said something weird/innapropriate)
 
