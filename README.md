@@ -13,58 +13,61 @@ Salutations!
 
 #
 
+
 `LOADING : User's Basic Info...`
 
-> Name — Vinlei
+> **Name** — Vinlei
 
-> Pronouns — she / her
+> **Pronouns** — she / her
 
-> Age — 16
+> **Age** — 16
 
-> Country — Philippines
+> **Country** — Philippines
 
-![download (1)](https://github.com/user-attachments/assets/8d455b8b-b327-474e-a575-646d2435b4e2) 
-
+ <p align="center">
+<img src="https://github.com/user-attachments/assets/8d455b8b-b327-474e-a575-646d2435b4e2" width="400" height="400" border="10"/>
+ </p>
 
 #
 
 `LOADING : User's Fandoms/Interests...`
 
 - **Dispatch.**
-> "Fym temporarily blinded? Oh, you blind foreva!"
+> <sup>"Fym temporarily blinded? Oh, you blind foreva!"</sup>
 
 - **Slasher Movies.**
->  "Look what they did to you, Jason. Make them remember."
+>  <sup>"Look what they did to you, Jason. Make them remember."</sup>
 
 - **Heathers: The Musical.**
->  "We'll watch the smoke pour out the doors- bring marshmallows, we'll make smores!"
+>  <sup>"We'll watch the smoke pour out the doors- bring marshmallows, we'll make smores!"</sup>
 
 - **Epic the Musical.**
->  "You are the worst kind of good 'cause you're not even great!"
+>  <sup>"You are the worst kind of good 'cause you're not even great!"</sup>
 
 - **Lackadaisy.**
->  "Viktor. Takes. Your. Bishop."
+>  <sup>"Viktor. Takes. Your. Bishop."</sup>
 
 - **Ena.**
->  "TURRRROOONNNNN!"
+>  <sup>"TURRRROOONNNNN!"</sup>
 
 - **CRK.**
->  "Both heart and soul are easily betrayed in the face of great power."
+>  <sup>"Both heart and soul are easily betrayed in the face of great power."</sup>
 
 - **TF2.**
->  "If God would've wanted you to live, then He wouldn't have created me!"
+>  <sup>"If God would've wanted you to live, then He wouldn't have created me!"</sup>
 
 - **AQOTWF.**
->  "I see how peoples are set against one another, and in silence, unknowingly, foolishly, obediently, innocently slay one another."
+>  <sup>"I see how peoples are set against one another, and in silence, unknowingly, foolishly, obediently, innocently slay one another."</sup>
 
 - **Pressure**
->  "You're in a hell of your own making... And you're NEVER GETTING OUT!"
+>  <sup>"You're in a hell of your own making... And you're NEVER GETTING OUT!"</sup>
 
 
-<sup>(There are a lot, LOT more fandoms I'm im but some of them are pretty dead)</sup>
+(There are a lot, LOT more fandoms I'm im but some of them are pretty dead)
 
-![download (2)](https://github.com/user-attachments/assets/16e37e95-05bc-463c-849c-11a1af31984d)
-
+ <p align="center">
+<img src="https://github.com/user-attachments/assets/16e37e95-05bc-463c-849c-11a1af31984d" width="400" height="400" border="10"/>
+ </p>
 
 
 #
@@ -73,21 +76,22 @@ Salutations!
 
 _Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's World are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int! But these people on the list must stay about 10 solar systems away from me._
 
-> Spawnists
+> Spawnists.
 
-> Homophobes
+> Homophobes.
 
-> Italian Brainrot kids
+> Italian brainrot kids.
 
-> AI "Artists"
+> AI "Artists".
 
-> Chronically Online people
+> Chronically online people.
 
 
 _And generally toxic people should stay away too <3_
 
-![Maleficent (2019)](https://github.com/user-attachments/assets/567c2565-9657-4bef-8422-b08860a0fcce)
-
+ <p align="center">
+<img src="https://github.com/user-attachments/assets/567c2565-9657-4bef-8422-b08860a0fcce" width="400" height="400" border="10"/>
+ </p>
 
 #
 
@@ -97,17 +101,19 @@ _And generally toxic people should stay away too <3_
 
 > Due to my amazing internet connection, I might disconnect from time to time.
 
+> If I don't reply to your whisps, that means I'm AFK. (Or maybe because you said something weird/innapropriate)
 
-![now winter comes slowly](https://github.com/user-attachments/assets/4ea9af78-805b-448a-abaa-41b652bab843)
-
+ <p align="center">
+<img src="https://github.com/user-attachments/assets/4ea9af78-805b-448a-abaa-41b652bab843" width="400" height="400" border="10"/>
+ </p>
 
 #
 
 __Anyways thats it buh bye__
 
 
-![feed them freddy !! 💔💔](https://github.com/user-attachments/assets/2daab66c-6435-47ff-bdb0-966aeb57a79c)
-</p>
+<img src="https://github.com/user-attachments/assets/2daab66c-6435-47ff-bdb0-966aeb57a79c" width="200" height="200" border="10"/>
+
 
 
 
