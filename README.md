@@ -12,11 +12,11 @@ __Salutations!__
 
 > Name — Vinlei
 
-> Pronouns — ( js use the character's pronouns )
+> Pronouns — she / her
 
 > Age — 16
 
-> Location — Philippines
+> Country — Philippines
 
 ![download (1)](https://github.com/user-attachments/assets/8d455b8b-b327-474e-a575-646d2435b4e2) 
 
@@ -56,7 +56,7 @@ __Salutations!__
 >  "You're in a hell of your own making... And you're NEVER GETTING OUT!"
 
 
-(There are a lot, LOT more fandoms I'm im but some of them are pretty dead)
+_(There are a lot, LOT more fandoms I'm im but some of them are pretty dead)_
 
 ![download (2)](https://github.com/user-attachments/assets/16e37e95-05bc-463c-849c-11a1af31984d)
 
