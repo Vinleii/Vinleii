@@ -77,7 +77,7 @@ Salutations!
 - **Epic the Musical.**
 >  <sup>"You are the worst kind of good 'cause you're not even great!"</sup>
 
-_(There are a lot, LOT more fandoms I'm im but some of them are pretty dead)_
+_(There are a lot, LOT more fandoms I'm in but some of them are pretty dead)_
 
  <p align="center">
 <img src="https://github.com/user-attachments/assets/16e37e95-05bc-463c-849c-11a1af31984d" width="400" height="400" border="10"/>
