@@ -100,6 +100,10 @@ _Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's
 
 > Chronically online people.
 
+> Creeps.
+
+> People above 18.
+
 
 _And generally toxic people should stay away too <3_
 
