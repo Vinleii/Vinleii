@@ -12,7 +12,7 @@ __Salutations!__
 
 > Name — Vinlei
 
-> Pronouns — she / her , character's pronouns
+> Pronouns — ( js use the character's pronouns )
 
 > Age — 16
 
