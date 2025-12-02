@@ -32,22 +32,15 @@ Salutations!
 
 `LOADING : User's Fandoms/Interests...`
 
+<p align="center">
+  
+`LOADING COMPLETE: GAMES`
+</p>
+
 - **Dispatch.**
 > <sup>"Fym temporarily blinded? Oh, you blind foreva!"</sup>
 
-- **Slasher Movies.**
->  <sup>"Look what they did to you, Jason. Make them remember."</sup>
-
-- **Heathers: The Musical.**
->  <sup>"We'll watch the smoke pour out the doors- bring marshmallows, we'll make smores!"</sup>
-
-- **Epic the Musical.**
->  <sup>"You are the worst kind of good 'cause you're not even great!"</sup>
-
-- **Lackadaisy.**
->  <sup>"Viktor. Takes. Your. Bishop."</sup>
-
-- **Ena.**
+- **Ena / Dream BBQ.**
 >  <sup>"TURRRROOONNNNN!"</sup>
 
 - **CRK.**
@@ -56,14 +49,35 @@ Salutations!
 - **TF2.**
 >  <sup>"If God would've wanted you to live, then He wouldn't have created me!"</sup>
 
-- **AQOTWF.**
->  <sup>"I see how peoples are set against one another, and in silence, unknowingly, foolishly, obediently, innocently slay one another."</sup>
-
 - **Pressure**
 >  <sup>"You're in a hell of your own making... And you're NEVER GETTING OUT!"</sup>
 
+<p align="center">
+  
+`LOADING COMPLETE: MOVIES/SHOWS`
+</p>
 
-(There are a lot, LOT more fandoms I'm im but some of them are pretty dead)
+- **Friday the 13th / Slasher movies in general.**
+>  <sup>"Look what they did to you, Jason. Make them remember."</sup>
+
+- **AQOTWF.**
+>  <sup>"I see how peoples are set against one another, and in silence, unknowingly, foolishly, obediently, innocently slay one another."</sup>
+
+- **Lackadaisy.**
+>  <sup>"Viktor. Takes. Your. Bishop."</sup>
+
+<p align="center">
+  
+`LOADING COMPLETE: MUSICALS`
+</p>
+
+- **Heathers: The Musical.**
+>  <sup>"We'll watch the smoke pour out the doors- bring marshmallows, we'll make smores!"</sup>
+
+- **Epic the Musical.**
+>  <sup>"You are the worst kind of good 'cause you're not even great!"</sup>
+
+_(There are a lot, LOT more fandoms I'm im but some of them are pretty dead)_
 
  <p align="center">
 <img src="https://github.com/user-attachments/assets/16e37e95-05bc-463c-849c-11a1af31984d" width="400" height="400" border="10"/>
