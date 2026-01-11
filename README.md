@@ -88,7 +88,7 @@ _(There are a lot, LOT more fandoms I'm in but some of them are pretty dead)_
 
 `LOADING : User's DNI List...`
 
-_Now, I know that NOT ALL fans of controversial fandoms like Forsaken or Dandy's World are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int! But these people on the list must stay about 10 solar systems away from me._
+_Now, I know that NOT ALL fans of controversial fandoms are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int! But these people on the list must stay about 10 solar systems away from me._
 
 > Spawnists.
 
