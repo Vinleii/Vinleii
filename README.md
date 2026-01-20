@@ -8,21 +8,10 @@ Salutations!
 </p>
 
 <p align="center">
-<sup>You've probably clicked my profile from ponytown, so I'm guessing you want to know more about me!</sup>
+<sup>This is my ponytown GitHub, feel free to read!</sup>
 </p>
 
 #
-
-
-`LOADING : User's Basic Info...`
-
-> **Name** — Vinlei
-
-> **Pronouns** — she / her
-
-> **Age** — 16
-
-> **Country** — Philippines
 
  <p align="center">
 <img src="https://github.com/user-attachments/assets/8d455b8b-b327-474e-a575-646d2435b4e2" width="400" height="400" border="10"/>
@@ -51,6 +40,9 @@ Salutations!
 
 - **Pressure**
 >  <sup>"You're in a hell of your own making... And you're NEVER GETTING OUT!"</sup>
+
+- **Dandy's World**
+>  <sup>"Done in a timely fashion..."</sup>
 
 <p align="center">
   
@@ -88,21 +80,19 @@ _(There are a lot, LOT more fandoms I'm in but some of them are pretty dead)_
 
 `LOADING : User's DNI List...`
 
-_Now, I know that NOT ALL fans of controversial fandoms are horrible people, but most of them are based off my experience. But hey, if you're really sure that you're not a toxic person, feel free to int! But these people on the list must stay about 10 solar systems away from me._
+_These people on the list must stay approximately 10 solar systems away from me._
 
 > Spawnists.
 
 > Homophobes.
 
-> Italian brainrot kids.
-
-> AI "Artists".
+> Proshippers.
 
 > Chronically online people.
 
-> Creeps / Proshippers.
+> Creeps.
 
-> People above 18.
+> People who talk about NSFW on the SAFE server.
 
 
 _And generally toxic people should stay away too <3_
@@ -115,15 +105,13 @@ _And generally toxic people should stay away too <3_
 
 `LOADING : Etc... `
 
-> I may or may not be incredibly horrible at socializing online, but I'll int back if you decide to int with me!
+> I may be horrible at socializing online, but I'll int back!
 
-> Due to my amazing internet connection, I might disconnect from time to time.
+> I might disconnect from time to time
 
-> I'm always on a tight schedule, so I might leave in the most random moments.
+> I'm always on a tight schedule, so I might leave in the most random moments
 
 > If I don't reply to your whisps, that means I'm AFK. (Or maybe because you said something weird/innapropriate)
-
-_Also, for new players, feel free to ask me stuff about the game! Most people out there are just rlly rude to newbies so I don't mind helping :)_
 
  <p align="center">
 <img src="https://github.com/user-attachments/assets/4ea9af78-805b-448a-abaa-41b652bab843" width="400" height="400" border="10"/>
