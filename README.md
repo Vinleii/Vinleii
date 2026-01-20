@@ -119,7 +119,7 @@ _And generally toxic people should stay away too <3_
 
 #
 
-__Anyways thats it buh bye__
+__first try at making ts aesthethic, anw that's it buh bye gng__
 
 
 <img src="https://github.com/user-attachments/assets/2daab66c-6435-47ff-bdb0-966aeb57a79c" width="200" height="200" border="10"/>
