@@ -9,11 +9,11 @@
   </p>
 
 <p align="center">
-Salutations!
+Bernadette, you are my liberty!
 </p>
 
 <p align="center">
-<sup>This is my ponytown GitHub, feel free to read!</sup>
+<sup>I celebrate the day that you changed my history~</sup>
 </p>
 
 
