@@ -1,6 +1,6 @@
 
   <p align="center">
-<img src="https://github.com/user-attachments/assets/1f41a272-6435-4b42-9b13-042513f7eb20" width="400" height="400" border="10"/>
+<img width="734" height="168" alt="_back_-removebg-preview (1)" src="https://github.com/user-attachments/assets/6d80cfc8-c09a-4a1f-876d-f62ca45d3048" />
   </p>
 
 <p align="center">
@@ -11,10 +11,11 @@ Salutations!
 <sup>This is my ponytown GitHub, feel free to read!</sup>
 </p>
 
-#
+
 
  <p align="center">
-<img src="https://github.com/user-attachments/assets/8d455b8b-b327-474e-a575-646d2435b4e2" width="400" height="400" border="10"/>
+<img width="734" height="168" alt="Untitled_design__3_-removebg-preview" src="https://github.com/user-attachments/assets/426af09a-99af-4be1-8e53-40524c56c4d6" />
+
  </p>
 
 #
