@@ -3,6 +3,11 @@
 <img width="734" height="168" alt="_back_-removebg-preview (1)" src="https://github.com/user-attachments/assets/6d80cfc8-c09a-4a1f-876d-f62ca45d3048" />
   </p>
 
+ <p align="center">
+ <img width="500" height="1000" alt="white lily cookie and silent salt cookie" src="https://github.com/user-attachments/assets/42a9dd57-013d-4172-baca-8e968de1f6d9" />
+
+  </p>
+
 <p align="center">
 Salutations!
 </p>
