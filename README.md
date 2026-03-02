@@ -18,6 +18,9 @@
 <img width="546" height="780" alt="Beasts redesign (1)" src="https://github.com/user-attachments/assets/4e2f4399-71e2-4827-b933-0281762f89eb" />
   </p>
 
+ <p align="center">
+<img width="577" height="122" alt="Screenshot 2026-03-02 222018" src="https://github.com/user-attachments/assets/4a4fe3c7-73e1-458c-9aa9-e456f091de57" />
+</p>
 
   <p align="center">
 ok im way too lazy bru
