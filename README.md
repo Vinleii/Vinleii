@@ -3,18 +3,19 @@
 <img width="734" height="168" alt="_back_-removebg-preview (1)" src="https://github.com/user-attachments/assets/6d80cfc8-c09a-4a1f-876d-f62ca45d3048" />
   </p>
 
- <p align="center">
- <img width="500" height="1000" alt="white lily cookie and silent salt cookie" src="https://github.com/user-attachments/assets/42a9dd57-013d-4172-baca-8e968de1f6d9" />
+  <p align="center">
+Salutations!
+</p>
 
+<p align="center">
+<sup> Here's a CRK AU I'm currently making, the other beasts are still a big WIP lmao <sup>
+</p>
+
+ <p align="center">
+<img width="746" height="980" alt="Beasts redesign" src="https://github.com/user-attachments/assets/25e4e4f6-b7ff-4975-a4f3-733b5b7738bd" />
   </p>
 
-<p align="center">
-Bernadette, you are my liberty!
-</p>
 
-<p align="center">
-<sup>I celebrate the day that you changed my history~</sup>
-</p>
 
 
 
