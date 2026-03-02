@@ -12,7 +12,7 @@ Salutations!
 </p>
 
  <p align="center">
-<img width="746" height="980" alt="Beasts redesign" src="https://github.com/user-attachments/assets/25e4e4f6-b7ff-4975-a4f3-733b5b7738bd" />
+<img width="546" height="780" alt="Beasts redesign" src="https://github.com/user-attachments/assets/25e4e4f6-b7ff-4975-a4f3-733b5b7738bd" />
   </p>
 
 
