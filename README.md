@@ -1,9 +1,13 @@
-  <p align="center">
-CRK - Redemption of the Beasts AU
+ <p align="center">
+<img width="658" height="91" alt="Screenshot 2026-03-02 222437" src="https://github.com/user-attachments/assets/4edba240-e13f-41fc-af62-194aa3d5505b" />
+</p>
+
+ <p align="center">
+<img width="577" height="122" alt="Screenshot 2026-03-02 222018" src="https://github.com/user-attachments/assets/4a4fe3c7-73e1-458c-9aa9-e456f091de57" />
 </p>
 
 <p align="center">
-<sup> Here's the AU I'm currently making, which is why my crk cosplays look kinda different,,, (the other beasts are still a BIIIGGG WIP lmao) <sup>
+<sup> Here's the CRK AU I'm currently making, which is why my cosplays look kinda different,,, (the other beasts are still a BIIIGGG WIP lmao) <sup>
 </p>
 
  <p align="center">
@@ -15,7 +19,9 @@ CRK - Redemption of the Beasts AU
   </p>
 
 
-
+  <p align="center">
+ok im way too lazy bru
+</p>
 
 
 
