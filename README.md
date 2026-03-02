@@ -16,10 +16,7 @@ Salutations!
 
 
 
- <p align="center">
-<img width="734" height="168" alt="Untitled_design__3_-removebg-preview" src="https://github.com/user-attachments/assets/426af09a-99af-4be1-8e53-40524c56c4d6" />
 
- </p>
 
 
 
