@@ -8,7 +8,7 @@ Salutations!
 </p>
 
 <p align="center">
-<sup> Here's the CRK AU I'm currently making, the other beasts are still a BIIIGGG WIP lmao <sup>
+<sup> Here's the Redemption AU I'm currently making, the other beasts are still a BIIIGGG WIP lmao <sup>
 </p>
 
  <p align="center">
