@@ -8,7 +8,7 @@ Salutations!
 </p>
 
 <p align="center">
-<sup> Here's a CRK AU I'm currently making, the other beasts are still a big WIP lmao <sup>
+<sup> Here's a CRK AU I'm currently making, the other beasts are still a big WIP but Eternal Sugar's next :D <sup>
 </p>
 
  <p align="center">
