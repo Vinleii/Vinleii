@@ -1,9 +1,9 @@
   <p align="center">
-Salutations!
+CRK - Redemption of the Beasts AU
 </p>
 
 <p align="center">
-<sup> Here's the Redemption AU I'm currently making, the other beasts are still a BIIIGGG WIP lmao <sup>
+<sup> Here's the AU I'm currently making, which is why my crk cosplays look kinda different,,, (the other beasts are still a BIIIGGG WIP lmao) <sup>
 </p>
 
  <p align="center">
