@@ -1,8 +1,3 @@
-
-  <p align="center">
-<img width="734" height="168" alt="_back_-removebg-preview (1)" src="https://github.com/user-attachments/assets/6d80cfc8-c09a-4a1f-876d-f62ca45d3048" />
-  </p>
-
   <p align="center">
 Salutations!
 </p>
